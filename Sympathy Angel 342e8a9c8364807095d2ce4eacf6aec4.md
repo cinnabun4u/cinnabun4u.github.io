@@ -1,0 +1,9 @@
+# Sympathy Angel
+
+![IMG_0381.jpeg](Sympathy%20Angel/IMG_0381.jpeg)
+
+*Sympathy Angel* explores the instability of gendered symbolism when it is displaced into aesthetic and contemporary visual culture. I drew a youthful female figure with teal hair, holding a mustache tattoo between her fingers and positioning it against her upper lip in a gesture that mimics facial hair. The mustache functions here as a historically coded signifier of masculinity. However, I am interested in how such symbols circulate beyond their original associations, particularly within fashion, vintage design, and youth-oriented visual cultures where they are repeatedly stylized and re-contextualized. In these spaces, the mustache becomes less a fixed marker of gender and more an aesthetic motif that can be adopted and re-performed.
+
+The title *Sympathy Angel* refers to my understanding of sympathy not simply as emotion, but as a form of connectedness, or a blur of boundaries between two subjects as the way how ink disperses in water. In this sense, sympathy becomes a mode of relation between masculine and feminine codes, but also between different parts of the self. 
+
+I wonder what are the other ways in which identity markers can be softened through aesthetic circulation. By isolating and physically repositioning this symbol on the body, the work examines how meaning is not inherent but constructed through repetition and context. I am particularly concerned with how gendered signs can become fluid when removed from their traditional frameworks, allowing for ambiguity and irony, thus further encouraging reinterpretation.
